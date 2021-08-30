@@ -1,4 +1,5 @@
-### Hi there 👋
+If I make you a star, you know, you are a man of technologies. Or maybe a man of different personalities? Robert Pain? Nik? well, nevermind. all you need to know, you can always find me @rassscal 
+you know what kind of messenger
 
 <!--
 **i-am-an-ordinary-person-from-msk-obl/i-am-an-ordinary-person-from-msk-obl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
