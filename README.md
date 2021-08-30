@@ -1,4 +1,4 @@
-If I make you a star, you know, you are a man of technologies. Or maybe a man of different personalities? Robert Pain? Nik? well, nevermind. all you need to know, you can always find me @rassscal 
+If I follow you, you know, you are a man of technologies. Or maybe a man of different personalities? Robert Pain? Nik? well, nevermind. all you need to know, you can always find me @rassscal 
 you know what kind of messenger
 
 <!--
